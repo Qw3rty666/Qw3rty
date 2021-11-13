@@ -1,2 +1,0 @@
-# Qw3rty.github.io
-Github page
